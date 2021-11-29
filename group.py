@@ -2,7 +2,7 @@
 
 # Lauren D
 
-# Ashley
+# Ashley--this is kinda cool!
 
 # Tim
 
